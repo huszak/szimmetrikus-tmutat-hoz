@@ -1,0 +1,1 @@
+# szimmetrikus-tmutat-hoz
